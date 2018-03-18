@@ -1,6 +1,14 @@
-## My life revolves around the intersections of business, technology, empathy, creativity, and community
+## Strategy, Development, UX/UI
 
-Romke E. De Haan is an innovative and results-oriented technology leader and executive with over 20 years of experience managing digital experiences for some of the world's largest brands, organizations, and startups. He is a thought leader and top digital strategist with strong expertise in the area of IT modernization. His divergent thinking ability and holistic approach to management and problem-solving make him an asset to organizations seeking leaders who can level-up technology operations and provide a competitive edge.
+When thinking about the future people tend to just react to trends and focus on what they are missing. I need a website. I need social media strategy. I should buy some bitcoin. What individuals need to focus on is value. Am I delivering value to those receiving it? Do I get value from what I deliver?
+
+Value can be many things. The delivery of that value is important. Technology can be a catalyst in creating momentum its delivery. It’s how blockbuster got beat out by netflix. Amazon in retail. Ride shares and taxis. 
+
+With over 20 years of experience, I can help deliver insights and research that inform your business to deliver improved value to your customers.
+
+Want to hire me for a project? Email me: [inquery@romkedehaan.com](mailto:inquery@romkedehaan.com)
+
+
 
 ## Executive Competencies:
 
