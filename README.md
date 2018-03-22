@@ -1,8 +1,12 @@
 ## Strategy, Development, UX/UI
 
-When thinking about the future people tend to just react to trends and focus on what they are missing. I need a website. I need social media strategy. I should buy some bitcoin. What individuals need to focus on is value. Am I delivering value to those receiving it? Do I get value from what I deliver?
+When thinking about the future people tend to just react to trends and focus on what they are missing. I need a website. I need a social media strategy. Can I use blockchain? 
 
-Value can be many things. The delivery of that value is important. Technology can be a catalyst in creating momentum in its delivery. It’s how Blockbuster got beat out by Netflix. Amazon in retail. Rideshares and taxis. 
+What individuals need to focus on is value. 
+
+Am I delivering value to those receiving it? Do I get value from what I deliver?
+
+Value can be many things. The delivery of that value is important. Technology can be a catalyst in creating momentum in the delivery of value. It’s how Blockbuster got beat out by Netflix. Amazon in retail. Rideshares and taxis. 
 
 With over 20 years of experience, I can help deliver insights and research that inform your business to deliver improved value to your customers.
 
