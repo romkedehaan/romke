@@ -1,6 +1,6 @@
 ## Strategy, Development, UX/UI
 
-When thinking about the future people tend to just react to trends and focus on what they are missing. I need a website. I need a social media strategy. Can I use blockchain? 
+When thinking about the future people tend to just react to trends and focus on what they are missing. I need a website. I need a social media strategy. Can I use blockchain? What is machine learning vs ai?
 
 What individuals need to focus on is value. 
 
